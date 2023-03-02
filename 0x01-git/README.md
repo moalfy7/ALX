@@ -1,1 +1,1 @@
-ez game
+i love shiko <3
